@@ -1,1 +1,0 @@
-ta valendo 2
